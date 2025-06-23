@@ -15,7 +15,7 @@
 
 点击访问：<a href="https://cg2-50.pages.dev/">吃瓜官网</a>
 
-点击访问：<a href="https://dy7-01.pages.dev/">91抖音</a>
+点击访问：<a href="https://pc10-49.pages.dev/">51品茶安卓版正版下载</a>
 
 点击访问：<a href="https://hj-224.pages.dev/">海角社区</a>
 
@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://cg8-47.pages.dev/">社区吃瓜</a>
 
-点击访问：<a href="https://aw1-01.pages.dev/">暗网社区</a>
+点击访问：<a href="https://chiguabao88.pages.dev/">17吃瓜</a>
 
 点击访问：<a href="https://hj-170.pages.dev/">91视频APP</a>
 
